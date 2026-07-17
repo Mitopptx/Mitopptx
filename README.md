@@ -5,4 +5,4 @@
 
 [Instagram](http://www.instagram.com/arkiiz?igsh=MWgybWJ2NGhIOGI1Yg==)
 # :3
-![Boykisser](https://seeklogo.com/vector-logo/494559/boykisser.svg)
+![Boykisser]([https://seeklogo.com/vector-logo/494559/boykisser](https://images.seeklogo.com/logo-png/49/1/boykisser-logo-png_seeklogo-494559.png))
