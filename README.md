@@ -1,0 +1,8 @@
+# OhaiYo!!!! Minaaaaasan 
+## bokuwo namai wa mItodEsuUUuU!!!!!
+
+**I'm furry and gaY and autistic :3**
+
+[Instagram](http://www.instagram.com/arkiiz?igsh=MWgybWJ2NGhIOGI1Yg==)
+# :3
+![Boykisser](https://seeklogo.com/vector-logo/494559/boykisser)
