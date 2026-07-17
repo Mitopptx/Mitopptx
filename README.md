@@ -1,5 +1,5 @@
 # OhaiYo!!!! Minaaaaasan 
-## bokuwo namai wa mItodEsuUUuU!!!!!
+## boku no namae wa mItodEsuUUuU!!!!!
 
 **I'm furry and gaY and autistic :3**
 
