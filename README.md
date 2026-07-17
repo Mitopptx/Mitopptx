@@ -16,4 +16,4 @@
 
 
 <p>
-<img src="https://pbs.twimg.com/tweet_video_thumb/FxPN24bXgAAAtZG.jpg">
+<img src="https://pbs.twimg.com/tweet_video_thumb/FxPN24bXgAAAtZG.jpg" width=1000 height=1000>
