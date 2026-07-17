@@ -16,4 +16,4 @@
 
 
 <p>
-<img src="https://pbs.twimg.com/tweet_video_thumb/FxPN24bXgAAAtZG.jpg" alt=kissboyser width=200 height=200>
+<img src="https://pbs.twimg.com/tweet_video_thumb/FxPN24bXgAAAtZG.jpg">
